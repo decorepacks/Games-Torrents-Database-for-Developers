@@ -6,3 +6,7 @@ Automate your publications, the database is updated daily.
 Fast, safe and quality torrents.
 <br>
 Please consider seeding the torrents to help our cause.
+<br><br>
+<b>Serve well to serve always!</b>
+<br><br>
+Team -=DECO Repacks=-
